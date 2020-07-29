@@ -39,7 +39,6 @@
   <img align="center" src="https://i.ibb.co/Kzbg56v/cartoon1590294680841.jpg" width="800"> 
 </p>
 
-
 Namaskarah! I'm Rahul, working as **Team Lead- Marketing Communication** at [SAGE Punlications India Pvt LTD](https://in.sagepub.com/en-in/sas/home). 
 Apart from my work, I love spending my time close to the nature, trekking, thinking about the nature of my existance and sitting by just closing my eyes in my free time. 
 
